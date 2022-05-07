@@ -1,2 +1,2 @@
 ### Hi there 👋
-- I’m nobody.
+- I’m a student major in networking.
